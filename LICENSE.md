@@ -1,4 +1,4 @@
-
+vip Script for king legacy offers the most advanced king legacy Script, with teleport and invisibility. Perfect for dominating any match.
 
 
 
